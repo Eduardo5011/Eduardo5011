@@ -1,4 +1,9 @@
+
+
 ### Hi there 👋, I'm Eduardo
+
+
+
 
 Coding provides a space for creativity. I enjoy being challenged in showcasing visual tempos. I like rendering thoughts onto an application and being able to create links that are effective through animation. My achievements are shown in the continuous change in my applications. I am driven by theatrics that draw clients to a website. I like clean lines that are simple yet intrinsic. My goal is to continue to learn and grow.
 
